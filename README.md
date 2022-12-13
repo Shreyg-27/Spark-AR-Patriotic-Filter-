@@ -7,8 +7,7 @@ We refer to our country as our motherland. She nurtures us and helps us grow. It
 The Patriotic filter shows 2 Indian flag masks on your cheeck along with "Jai Hind" on the top of the screen. It enables you to wear a white cap as well. 
  
 ### LINK OF THE FILTER 
-
-https://www.facebook.com/fbcameraeffects/testit/1076811603023402/MGQyNjUxMTMwOTBiMWQ1NzUzNzYxMTI1MjUxZDc4Y2U=/
+https://www.facebook.com/fbcameraeffects/tryit/1076811603023402/
 
 
 
